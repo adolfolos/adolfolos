@@ -1,6 +1,6 @@
 # sobre mim
 - 👋 meu nome é Adolfo. Me segue no app vizinho
-@_adolfolos.
+ig: @_adolfolos.
 - 👀 Primeira regra: Sempre de o melhor de si, e não se importe com opiniões de pessoas irrelevantes
 
 
